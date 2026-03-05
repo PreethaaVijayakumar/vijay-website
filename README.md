@@ -29,5 +29,4 @@ https://preethaavijayakumar.github.io/vijay-website
 
 Author
 
-Vijayakumar  
-Senior Automotive Project Management & Body Engineering Professional
+Preethaa Vijayakumar  
